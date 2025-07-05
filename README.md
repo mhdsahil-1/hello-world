@@ -1,4 +1,4 @@
-# HELL O THERE!!
+# HELLO THERE!!
 I am SAHIL
 
 I like Anime and to play table tennis.
